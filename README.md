@@ -1,2 +1,2 @@
 # bits_bobs
-Public and Free: Various Code Thingamajigs I give '
+Public and Free: Various Code Thingamajigs I give Unto Thee 
